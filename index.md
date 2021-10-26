@@ -16,7 +16,7 @@
 - Active Mountain Guide (DOS B-License)
 
 ### Passions
-Technology, R&D, Learning, Improve the status quo
+Technology, R&D, Creating, Learning, Improve the status quo
 
 ### Lessons learned
 
