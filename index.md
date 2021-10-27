@@ -51,5 +51,6 @@ After having raised over €25M+ in my venture career, founded, raised and sold 
 
 
 ### Links
-[eToro social investing](https://www.etoro.com/people/michha)
+- [eToro social investing](https://www.etoro.com/people/michha)
+- [Twitter](https://twitter.com/michaelhank)
 
