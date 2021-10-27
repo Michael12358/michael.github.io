@@ -7,7 +7,7 @@
 - Graduated as engineer (Dipl. Ing) from University of Applied Sciences in Munich in 1997
 - Worked with Hydranautics (Reverse Osmosis manufacturer) until 1999
 - Founded [inge AG](https://www.inge.ag) together with my dad in 1999, built and ran it until 2005 (today part of DuPont Group). inge develops and produces patented membranes with a pore-size of 10-100 nanometer in a spinning process. Sold filter modules as core tech for drinking-water-disinfection plants to OEMs globally
-- Founded [Seccua](https://www.seccua.com) in 2005, succesful trade-sale to of [Mann & Hummel](https://www.mann-hummel.com) in 2021. Seccua developed, produced and marketed plug-and-play devices for water disinfection in homes, commercial and mnunicipal applications 
+- Founded [Seccua](https://www.seccua.com) in 2005, succesful trade-sale to [Mann & Hummel](https://www.mann-hummel.com) in 2021. Seccua developed, produced and marketed plug-and-play devices for water disinfection in homes, commercial and mnunicipal applications 
 - Co-founded [Pink Elements](https://www.pink-elements.com) in 2021. Pink Elements will make it easy for people to look-up environmental data, which are relevant to them, such as e.g. water or air quality. It will be safe and transparent (based on the block-chain), uncensored (open code), self-sustaining through community interaction and an Ethereum-based Pink Token.
 
 ### Volunteering
