@@ -38,7 +38,7 @@ After having raised over €25M+ in my venture career, founded, raised and sold 
 - Knowledge matters (that's why I keep continuously learning)
 - People matter
 
-### Favourite books
+### Recommended books
 - "From mice and men"
 - "Undaunted courage"
 - "Cannery Row"
@@ -48,6 +48,7 @@ After having raised over €25M+ in my venture career, founded, raised and sold 
 - "Gruffalo"
 - "Stiller"
 - "Homo Faber"
+- "Acht Berge"
 
 
 ### Links
