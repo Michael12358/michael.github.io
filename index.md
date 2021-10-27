@@ -16,8 +16,7 @@
 - Active Mountain Guide (DOS B-License)
 
 ### Passions
-Technology, R&D, Creating, Learning, Improving the status quo
-Nature, the mountains, climbing, backcountry skiing, mountain-biking, the sea
+Technology, R&D, creating, learning, improving the status quo, nature, the mountains, climbing, backcountry skiing, mountain-biking, the sea
 
 ### Lessons learned
 #### Into the great wide open
