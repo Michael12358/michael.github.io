@@ -15,7 +15,7 @@
 - Active Dog Handler for Avalanche SAR (Bergwacht Bayern)
 - Active Mountain Guide (DOS B-License)
 
-### Passions
+### Passionate about
 Technology, R&D, creating, learning, improving the status quo, nature, the mountains, climbing, backcountry skiing, mountain-biking, the sea
 
 ### Lessons learned
