@@ -17,6 +17,7 @@
 
 ### Passions
 Technology, R&D, Creating, Learning, Improve the status quo
+Nature, the mountains, climbing, backcountry skiing, mountain-biking
 
 ### Lessons learned
 
