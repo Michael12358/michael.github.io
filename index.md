@@ -27,6 +27,8 @@ He said that to me when I presented my resignation to him to leave from corporat
 
 All over I have lived through three major market crisis in my entrepreneurial life, including Covid just recently. We have fought through all of them, always as a team. It was always tough, but looking back during those times I learned a lot about the people I dealt with and still do today.
 
+After having raised over €25M+ in my venture career, founded, raised and sold two companies successfully and while being in the process of getting the third one started, here are: 
+
 #### Some of my key take aways
 - Helping others to me is the most rewarding experience
 - Family is your last resort when things get rough
