@@ -12,27 +12,42 @@
 
 ### Volunteering
 - Active Mountain Rescue Paramedic (Bergwacht Bayern)
-- Active Dog Handler for Avalanche SAR
+- Active Dog Handler for Avalanche SAR (Bergwacht Bayern)
 - Active Mountain Guide (DOS B-License)
 
 ### Passions
-Technology, R&D, Creating, Learning, Improve the status quo
-Nature, the mountains, climbing, backcountry skiing, mountain-biking
+Technology, R&D, Creating, Learning, Improving the status quo
+Nature, the mountains, climbing, backcountry skiing, mountain-biking, the sea
 
 ### Lessons learned
-
->When you start a business, you need a bucket full of money
+#### Into the great wide open
+>"When you start a business, you need a bucket full of money"
 >(Manfred von Schierach, my former boss at Hydranautics, first employment after graduation)
 
-He said that to me when I presented my resignation. He was totally right, most likely believed that I could not raise the funds to start my first company. Shortly after we managed to raise our first €3.5M to get inge AG started. Our technology was so early in the market that we needed to spend €20M to reach €10M in revenue and build up production. Nonetheless the company sold at 7x revenue later on and is still technology leader.
+He said that to me when I presented my resignation to him to leave from corporate into self-employment. He was totally right, we found! Nonetheless we managed to get a great group of people together and shortly after we managed to raise our first €3.5M to get inge AG started, despite the burst of the internet-bubble back in late 2000. Our technology was so revolutionary in the market that we needed to spend €20M to reach €10M in revenue and build up production. Nonetheless the company sold at 7x revenue later on and is still technology leader.
 
-In my entrepreneurial life I have lived through three major market crisis, including Covid just recently. We have fought through all of them, always as a team.
+All over I have lived through three major market crisis in my entrepreneurial life, including Covid just recently. We have fought through all of them, always as a team. It was always tough, but looking back during those times I learned a lot about the people I dealt with and still do today.
 
-- Helping others is the most giving experience
+#### Some of my key take aways
+- Helping others to me is the most rewarding experience
 - Family is your last resort when things get rough
 - Moving forward is all a matter of perserverance and persistance
-- Knowledge matters
+- One needs friends, in private, but also in business
+- In business or sports, one never races others, but only oneself
+- Knowledge matters (that's why I keep continuously learning)
 - People matter
+
+### Favourite books
+- "From mice and men"
+- "Undaunted courage"
+- "Cannery Row"
+- "Die unendliche Geschichte"
+- "Momo"
+- "Where the wild things are"
+- "Gruffalo"
+- "Stiller"
+- "Homo Faber"
+
 
 ### Links
 [eToro social investing](https://www.etoro.com/people/michha)
